@@ -45,7 +45,7 @@ Geliştirdiğim projeler arasında ticari ERP çözümleri, e-ticaret sistemleri
 
 ## 📬 İletişim & Takip
 
-- 📧 E-posta: mustafa.snturk [at] örnekmail.com  
+- 📧 E-posta: mustafa@microgrup.com
 
 ---
 
